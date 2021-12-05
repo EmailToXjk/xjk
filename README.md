@@ -1,2 +1,2 @@
 # xjk
-Just a joke
+Just a joke！
